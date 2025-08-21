@@ -9,7 +9,7 @@ With products like beef, coffee, and chocolate seeing [double-digit](https://www
 
 I have always kind of had hand me down mobile phones as I don't trust myself to not break the screen so it has been pretty easy not being that bothered about the latest phones. They are almost on the same release trajectory as the latest copy of FIFA (now EA Sports FC) with minimal changes with each company trying to envelop you into their ecosystem permanently.
 
-As an added bonus, I removed Instagram and Youtube from my phone as these end up being time sinks that can eat into time you can spend doing other things and can impact the amount of focus and attention you can muster.
+As an added bonus, I removed Amazon, Instagram and Youtube from my phone as these end up being time sinks that eat into my time. Removing the chance of same day or next day purchases has helped me reduce any impulse buys and the ability to doomscroll.
 
 #### Laptops
 
@@ -23,7 +23,7 @@ Ebay has plenty of used servers that people have used to host PiHole, Plex, Jell
 
 #### Clothing
 
-I like to do a lot of walking and hiking so I need clothing that is durable and comfortable. I have recently been using EBay an awful lot to repurpose clothing too and I have been pleasantly suprised by what is available. Other than the big brands like Patagonia, most other hiking brands such as LL Bean and Eddie Bauer have a lot of items on there that are reasonably priced and in good condition. I have had a quick glimpse at Vinted too and managed to get a few decent bits off there as well!
+I like to do a lot of walking and hiking so I need clothing that is durable and comfortable. I have recently been using EBay an awful lot to repurpose clothing too and I have been pleasantly surprised by what is available. Other than the big brands like Patagonia, most other hiking brands such as LL Bean and Eddie Bauer have a lot of items on there that are reasonably priced and in good condition. I have had a quick glimpse at Vinted too and managed to get a few decent bits off there as well!
 
 #### Books
 
