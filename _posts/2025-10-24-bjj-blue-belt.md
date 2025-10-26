@@ -10,3 +10,4 @@ Darren and Helen are both formerly students of Chris Haueter, one of the origina
 
 ![alt text](/assets/images/bluebelt.jpg)
 
+---
