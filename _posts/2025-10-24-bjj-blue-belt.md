@@ -8,6 +8,6 @@ After practising Brazilian Jiu Jitsu for 11 months, I'm happy to say I got promo
 Darren and Helen are both formerly students of Chris Haueter, one of the original Dirty Dozen pioneer black belts. The first ever non-Brazilian black belts.
 
 
-![alt text](/assets/images/bluebelt.JPG)
+![alt text](/assets/images/blue-belt.jpg)
 
 ---
